@@ -4,3 +4,4 @@ I had my breakfest at around 7:30. I played some games and then we went to dyers
 
 After we arrived at dyers bay(about 22 min away) we checked around looking for a parking spot. For some time we followed another car but they could not find the parking spot. Then, we saw a sign saying where the parking spot was. My dad droped me and my mom of while he went to the parking spot. We checked around the place took some photos and then we went down bruce trail.
  
+When we first entered the trail we thought that it was 5km round trip, but when got to the middle of the trail, there was a sign. It said that it was 5km on way!
