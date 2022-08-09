@@ -7,3 +7,5 @@ After we arrived at dyers bay(about 22 min away) we checked around looking for a
 When we first entered the trail we thought that it was 5km round trip, but when got to the middle of the trail, there was a sign. It said that it was 5km one way!
 
 Later we arrived at a road that would lead us to devils mounument. We decided that my dad would go back to dyers bay to get the car by going on the road. And me and my mom would go to devils mounument
+
+We spent about 1 hour at devils mounument and then we went home.
